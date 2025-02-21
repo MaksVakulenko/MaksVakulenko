@@ -1,1 +1,1 @@
-![GIF](https://github.com/user-attachments/assets/ea08b947-2d3c-46b3-b906-691df71cd9b3)
+![Image](https://github.com/user-attachments/assets/8a01ee87-f309-4c5d-9796-e840784d9f0c)
